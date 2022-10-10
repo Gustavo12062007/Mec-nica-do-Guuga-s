@@ -1,1 +1,1 @@
-# Mec-nica-do-Guuga-s
+# Mecânica-do-Guuga-s
