@@ -1,1 +1,0 @@
-# Mecânica-do-Guuga-s
